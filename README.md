@@ -1,0 +1,2 @@
+# atakan
+Mavi tik
